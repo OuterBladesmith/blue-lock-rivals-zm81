@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with new Scripts for blue lock rivals, the #1 Script. Includes fly and god mode for unbeatable
 
 
 
